@@ -7,6 +7,9 @@ harmoniclick Obertones!
 <img width="1366" height="768" alt="image" src="https://github.com/user-attachments/assets/13d1463d-d1bb-4ca8-a916-c5452000d0ed" />
 
 
+<img width="1366" height="768" alt="image" src="https://github.com/user-attachments/assets/2d355531-6089-4fe7-8ccb-171c6d45b4b1" />
+
+
 HARmoniclick iR (Рი) 3.142857142857143 ЯRemembæredb, Just need to record in outher device, difference from my lebenssattelittaas ...
 
 I hope lokal wemen will be interested to record in self my d'bARgenckode mm.
